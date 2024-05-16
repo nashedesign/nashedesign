@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @nashedesign
-- 👀 I’m interested in Graphic Design, Visual Communication, User Interface Design, Branding, Web Design, and Typography
-- 🌱 I’m currently learning Graphic Design where we make cool visuals using our imagination and the help of programs
+- 👀 I’m interested in Graphic Design, Visual Communication, User Interface Design, Branding, Web Design, and Typography.
+- 🌱 I’m currently learning Graphic Design where we make cool visuals using our imagination.
 - 💞️ I’m looking to collaborate on Graphic Design projects where I can apply my skills and learning to create visually compelling designs that meet the client's needs and goals
 - 📫 You can contact me through email at nsh.dsgn@gmail.com; You can also find me on social media such as Instagram @nsh.dsgn; Also feel free to reach out to me through my Mobile number at 310-654-3573.
 - 😄 Pronouns: She/her/hers
